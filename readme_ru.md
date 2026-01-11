@@ -1,6 +1,9 @@
 # Kling-AI-Referral-Code  
 ## Реферальный код Kling AI: получите 50% дополнительных бесплатных кредитов
 
+Ищете **реферальный код Kling AI**, **промокод Kling AI**, **скидку Kling AI**, **купон Kling AI** или **discount code Kling AI**?  
+Используйте **реферальный код Kling AI `7BN9SPBYZVNT`**, чтобы получить **50% бонусных кредитов** к подписке — **до 5 000 дополнительных кредитов**.
+
 ✅ **Активировать бонус по ссылке:**  
 https://pro.klingai.com/h5-app/invitation?code=7BN9SPBYZVNT
 
