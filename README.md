@@ -72,7 +72,7 @@ This first-month strategy leverages Kling's new user incentives to create a pric
 No official student pricing exists, but the **Kling AI referral code** provides equivalent savings of 50% bonus credits regardless of student status.
 
 **Can multiple promotional codes be combined?**  
-Only one promotional offer applies per transaction. The referral code 7BPNSXVCR8FL represents one of the strongest available promotions.
+Only one promotional offer applies per transaction. The referral code 7BN9SPBYZVNT represents one of the strongest available promotions.
 
 **Are seasonal discounts worth waiting for?**  
 The referral code bonus remains consistently available year-round and typically exceeds seasonal promotional rates.
